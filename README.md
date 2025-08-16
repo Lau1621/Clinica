@@ -1,4 +1,4 @@
-## Clinica 😅💉🖥️
+## Software de Clinica 😅💉🖥️
 ## Integrantes:
 ### Laura Quintero Correa
 ### Estefania
