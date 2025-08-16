@@ -1,5 +1,5 @@
-## Clinica 
-## Integrantes
+## Clinica 😅💉🖥️
+## Integrantes:
 ### Laura Quintero Correa
 ### Estefania
 ### Juan Pablo 
